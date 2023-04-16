@@ -7,6 +7,7 @@
 - 😄 Pronouns: she/her, ela, elle
 - ⚡ Fun fact: I've been a swiftie since 2012
 
+## Languages
 - I speak English
 - Eu falo português
 - Je parle français
